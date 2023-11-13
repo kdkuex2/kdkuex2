@@ -1,4 +1,5 @@
 ### Hi there 👋
+### Iam fucking human sukezirou! yea!!!
 
 <!--
 **kdkuex2/kdkuex2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
